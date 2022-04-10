@@ -1,0 +1,2 @@
+- 👋 hi, i’m cosmo!
+- 👀 i’m interested in psychology, photography, and writing!
